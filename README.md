@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SunnyYellows Aka Tubey formally Justin Lee Ashton 337
+- 👋 Hi, I’m @SunnyYellows Aka Tubey formally Mr Ashton 337
 - 👀 I’m interested in ... Developing changes in the infurstructure of internet and develop new and exciting sites and social media within a respected community. 
 - 🌱 I’m currently learning ... Programming
 - 💞️ I’m looking to collaborate on ... Music, Art, Magic, Mental Health Matters.
